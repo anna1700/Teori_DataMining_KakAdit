@@ -1,0 +1,1 @@
+# Teori_DataMining_KakAdit
